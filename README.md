@@ -5,7 +5,7 @@
     「 welcome to the stage of sorrow 」
     </p>
 <p align="center">
-  <img src=https://github.com/user-attachments/assets/3af87952-9165-4217-9998-3f2779119df1/>
+  <img src=https://github.com/user-attachments/assets/d4bb0e38-ded0-460f-a5b8-de839a07e5cf/>
 </p>
 <p align="center">
 ✦•······················•✦•······················•✦
@@ -74,7 +74,7 @@ i am a system, i won't always be available.
 ✦•······················•✦•······················•✦
   </p>
   <p align="center">
-  <img src=https://github.com/user-attachments/assets/9e63c0cf-acb8-4783-9e9b-2f227b42a837/>
+  <img src=https://github.com/user-attachments/assets/08678f77-fea3-4313-b8e7-f56ca754a25b/>
 </p>
     <p align="center">
 「 thank you for reading 」
